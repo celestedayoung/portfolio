@@ -1,3 +1,15 @@
 # portfolio
 
-[표다영_포트폴리오.pdf](https://github.com/user-attachments/files/17140908/_.pdf)
+![0](https://github.com/user-attachments/assets/963cb31a-7357-4f0f-82f7-e9b138f846b9)
+![1](https://github.com/user-attachments/assets/80a9a215-ab26-4f4f-bd67-3abc003f17a4)
+![2](https://github.com/user-attachments/assets/5da17d02-b494-4b58-9077-a6ffd595f372)
+![3](https://github.com/user-attachments/assets/b0e7a47e-ab0e-4fdc-a990-0f8503e68720)
+![4](https://github.com/user-attachments/assets/9b861700-cd49-407a-99f6-3b7c93a3da9e)
+![5](https://github.com/user-attachments/assets/cde9ca65-967d-4c78-bffb-d6651849cc30)
+![6](https://github.com/user-attachments/assets/b4183939-14e1-4b59-bff4-e683ba4c5ce3)
+![7](https://github.com/user-attachments/assets/4dd2680b-f6f9-4491-89c3-25ad4a430c25)
+![8](https://github.com/user-attachments/assets/7c735d8c-ab88-4184-a228-f00d45f8783f)
+![9](https://github.com/user-attachments/assets/2aee35d3-2f37-4d2e-b093-33768c2afd03)
+![10](https://github.com/user-attachments/assets/0230273a-8a6c-4551-bc17-8acd1ad2bee7)
+![11](https://github.com/user-attachments/assets/548df1d0-73c8-41f2-9ab5-e52b47b3dfb9)
+![12](https://github.com/user-attachments/assets/4db90876-409e-4140-b33b-5a0d806deefe)
